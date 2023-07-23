@@ -1,1 +1,1 @@
-Everything by yashar
+Everything by yashar and the Queen
